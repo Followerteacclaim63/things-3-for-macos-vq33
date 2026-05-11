@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Things 3 for macOS utility with Things 3 for macOS best Utility - offline access and custom shortcuts. Featuring offline access and custom shortcuts, it's the
 
 
 
